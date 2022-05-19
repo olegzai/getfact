@@ -1,1 +1,3 @@
 # Amanita Muscaria
+
+факты
